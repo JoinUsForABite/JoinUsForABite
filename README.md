@@ -1,5 +1,5 @@
 # Hi, I’m Lizzy!
-![𝚂𝚊𝚗_𝚝𝚑𝚞0918 𝚘𝚗 𝙸𝚗𝚜𝚝𝚊𝚐𝚛𝚊𝚖](https://github.com/user-attachments/assets/aa538eb6-4b51-4565-89d2-77de081bf40f)
+![me](![Untitled459_20241225164316](https://github.com/user-attachments/assets/5705da05-e18c-4c33-a8f9-2ced3ba99ba3))
 ---
 AroAce | Ships DNI | Proships DNI
 
